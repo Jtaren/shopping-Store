@@ -1,1 +1,1 @@
-A place to buy products
+A place to buy products.
